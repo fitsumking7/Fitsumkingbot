@@ -1,0 +1,2 @@
+# Fitsumkingbot
+ለሁሉም ይሰራል 
